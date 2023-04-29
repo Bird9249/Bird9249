@@ -5,7 +5,7 @@ Software Developer
 ------------------
 
 * 🌍  I'm based in Vientiane
-* ✉️  You can contact me at [lkp95680383@gmail.com](mailto:lkp95680383@gmail.com)
+* ✉️  You can contact me at [bkeonavong@gmail.com](mailto:bkeonavong@gmail.com)
 
 ### Skills
 
